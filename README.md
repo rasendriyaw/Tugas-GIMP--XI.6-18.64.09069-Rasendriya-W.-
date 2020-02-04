@@ -1,1 +1,0 @@
-# Tugas-GIMP--XI.6-18.64.09069-Rasendriya-W.-
